@@ -4,3 +4,6 @@
 <img width="395" height="396" alt="scg0uv" src="https://github.com/user-attachments/assets/f077908d-ece5-403e-b637-65d5afaff86f" />
 
 [entry](https://fluffle.cc/mastersword)ㅤ ㅤㅤ<img width="20" height="20" alt="tumblr_25e0357c431f348bc90720de3921d539_769b2b66_75" src="https://github.com/user-attachments/assets/055a62bb-3f60-4190-954d-2d8cef3cdead" />ㅤㅤ [atabook](https://majoras.atabook.org/) 
+
+$$\color{#b9e1cb}\text{not very social im a shy dude ; i like TLOZ TGF ITchapter1n2 and other shit}$$
+$$\color{#b9e1cb}\text{uhh im almost always not on tab whisper to talk with me thx!}$$
